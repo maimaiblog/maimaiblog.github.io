@@ -1,2 +1,2 @@
 # maimaiblog.github.io
-a blog of maimai, a Musicial from Xuzhou, China
+a blog of maimai, a Musician from Xuzhou, China
